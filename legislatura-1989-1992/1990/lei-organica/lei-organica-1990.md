@@ -357,7 +357,9 @@ d) livros, jornais, periódicos e o papel destinado a sua impressão.
 **Art. 53.** A administração pública direta, indireta ou fundacional de qualquer dos poderes do Município, obedecerá aos princípios de legalidade, impessoalidade, moralidade, publicidade, interesse coletivo e, também ao seguinte:
 
 I - os cargos, empregos e funções públicas são acessíveis aos brasileiros que preencham os requisitos estabelecidos em lei;
+
 II - a investidura em cargo ou emprego público da administração direta, indireta ou fundacional depende de aprovação prévia em concurso de provas ou de provas e títulos, ressalvadas as nomeações para cargo em comissão declarado em lei de livre nomeação e exoneração;
+
 III - não haverá limite máximo de idade para inscrição no concurso público, constituindo-se, entretanto, em requisito de acessibilidade ao cargo ou emprego a possibilidade de permanência por cinco anos em seu efetivo exercício;
 IV - o prazo de validade do concurso público será de dois anos, prorrogável uma vez por igual período;
 V - tanto no prazo de validade quanto no de sua prorrogação previsto no edital de convocação, o aprovado em concurso público de provas ou de provas e títulos, será observada a classificação, convocado com prioridade sobre novos concursados para assumir cargo ou emprego na carreira;
