@@ -629,35 +629,53 @@ VII - ser alfabetizado.
 
 ~~**§ 1º** Observados os limites estabelecidos no artigo 29, IV da Constituição Federal e guardada proporção com a população do município, o número de Vereadores para cada legislatura, será o seguinte:~~
 
+~~**§ 1º** Observados os limites estabelecidos no art. 29, IV, a, da Constituição Federal e guardada proporção com a população do município, o número de Vereadores para cada legislatura, será o seguinte: [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
+
 ~~a) nove Vereadores até dez mil habitantes;~~
+
+~~a) 10 (dez) Vereadores, de 47.620 (quarenta e sete mil, seiscentos e vinte) habitantes até 95.238 (noventa e cinco mil, duzentos e trinta e oito) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
 
 ~~b) onze Vereadores de dez mil e um a quinze mil habitantes;~~
 
+~~b) 11 (onze) Vereadores, de 95.239 (noventa e cinco mil, duzentos e trinta e nove) habitantes até 142.857 (cento e quarenta e dois mil, oitocentos e cinqüenta e sete) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
+
 ~~c) treze Vereadores de quinze mil e um a vinte e cinco mil habitantes;~~
+
+~~c) 12 (doze) Vereadores, de 142.858 (cento e quarenta e dois mil, oitocentos e cinqüenta e oito) habitantes até 190.476 (cento e noventa mil, quatrocentos e setenta e seis) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
 
 ~~d) quinze vereadores de vinte e cinco mil e um a quarenta mil habitantes;~~
 
+~~d) 13 (treze) Vereadores, de 190.477 (cento e noventa mil, quatrocentos e setenta e sete) habitantes até 238.095 (duzentos e trinta e oito mil e noventa e cinco) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
+
 ~~e) dezessete Vereadores de quarenta mil e um a oitenta mil habitantes;~~
+
+~~e) 14 (quatorze) Vereadores, de 238.096 (duzentos e trinta e oito mil e noventa e seis) habitantes até 285.714 (duzentos e oitenta e cinco mil, setecentos e quatorze) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
 
 ~~f) dezenove vereadores de oitenta mil e um a cento e trinta mil habitantes;~~
 
+~~f) 15 (quinze) Vereadores, de 285.715 (duzentos e oitenta e cinco mil, setecentos e quinze) habitantes até 333.333 (trezentos e trinta e três mil, trezentos e trinta e três) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
+
 ~~g) vinte e um Vereadores de cento e trinta mil e um a hum milhão de habitantes.~~
 
-**§ 1º** Observados os limites estabelecidos no art. 29, IV, a, da Constituição Federal e guardada proporção com a população do município, o número de Vereadores para cada legislatura, será o seguinte: [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+~~g) 16 (dezesseis) Vereadores, de 333.334 (trezentos e trinta e três mil, trezentos e trinta e quatro) habitantes até 380.952 (trezentos e oitenta mil, novecentos e cinqüenta e dois) habitantes. [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)~~
 
-a) 10 (dez) Vereadores, de 47.620 (quarenta e sete mil, seiscentos e vinte) habitantes até 95.238 (noventa e cinco mil, duzentos e trinta e oito) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+~~**§ 1º** A Câmara de Vereadores de Maricá é composta por 17 (dezessete) vereadores. [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)~~
 
-b) 11 (onze) Vereadores, de 95.239 (noventa e cinco mil, duzentos e trinta e nove) habitantes até 142.857 (cento e quarenta e dois mil, oitocentos e cinqüenta e sete) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+**§ 1º** A Câmara de Vereadores é composta por 21 (vinte e um) vereadores. [(Redação dada pela Emenda à Lei Orgânica nº 50. de 2023)](/legislatura-2021-2024/2023/lei-organica/ELO-00050-2023.md)
 
-c) 12 (doze) Vereadores, de 142.858 (cento e quarenta e dois mil, oitocentos e cinqüenta e oito) habitantes até 190.476 (cento e noventa mil, quatrocentos e setenta e seis) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+a) Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)
 
-d) 13 (treze) Vereadores, de 190.477 (cento e noventa mil, quatrocentos e setenta e sete) habitantes até 238.095 (duzentos e trinta e oito mil e noventa e cinco) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+b) Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)
 
-e) 14 (quatorze) Vereadores, de 238.096 (duzentos e trinta e oito mil e noventa e seis) habitantes até 285.714 (duzentos e oitenta e cinco mil, setecentos e quatorze) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+c) Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)
 
-f) 15 (quinze) Vereadores, de 285.715 (duzentos e oitenta e cinco mil, setecentos e quinze) habitantes até 333.333 (trezentos e trinta e três mil, trezentos e trinta e três) habitantes; [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+d) Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)
 
-g) 16 (dezesseis) Vereadores, de 333.334 (trezentos e trinta e três mil, trezentos e trinta e quatro) habitantes até 380.952 (trezentos e oitenta mil, novecentos e cinqüenta e dois) habitantes. [(Redação dada pela Emenda à Lei Orgânica nº nº 33, de 2008.)](/legislatura-2005-2008/2008/lei-organica/ELO-00033-2008.md)
+e) Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)
+
+f) Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)
+
+g) Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 42, de 2015)](/legislatura-2013-2016/2015/lei-organica/ELO-00042-2015.md)
 
 **§ 2º** A população do Município, para fins a que se refere o parágrafo anterior, será aquela existente a 31 de dezembro do ano anterior ao das eleições, apurada pelo órgão federal competente.
 
@@ -793,7 +811,9 @@ XXIV - suspender a execução, no todo ou em parte, de lei ou de ato normativo o
 
 XXV - zelar pela preservação de sua competência legislativa, em face de atribuições normativas de outros Poderes;
 
-XXVI - autorizar o Executivo assinar convênios, consórcios, contratos e outros acordos de qualquer natureza com entidades de direito público ou privado, nacionais ou estrangeiras em que haja emprego de recursos financeiros, materiais ou humanos da Municipalidade;
+~~XXVI - autorizar o Executivo assinar convênios, consórcios, contratos e outros acordos de qualquer natureza com entidades de direito público ou privado, nacionais ou estrangeiras em que haja emprego de recursos financeiros, materiais ou humanos da Municipalidade;~~
+
+XXVI - Revogado. [(redação dada pela Emenda à Lei Orgânica nº 39, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00039-2014.md)
 
 XXVII - autorizar referendo e convocar plebiscito;
 
@@ -1009,17 +1029,23 @@ III - para desempenhar missões temporárias de caráter cultural ou de interess
 
 **§ 5º** Inexistindo número legal, o Vereador mais idoso dentre os presentes permanecerá na presidência e convocará sessões diárias, até que seja eleita a Mesa.
 
-**§ 6º** A eleição da Mesa, para o segundo biênio de cada legislatura far-se-á na última sessão do primeiro biênio, e os eleitos tomarão posse no primeiro dia útil do biênio seguinte. [(Inluído pela Emenda nº 36, de 06.04.2010)](/legislatura-2009-2012/2010/lei-organica/ELO-00036-2010.md)
+~~**§ 6º** A eleição da Mesa, para o segundo biênio de cada legislatura far-se-á na última sessão do primeiro biênio, e os eleitos tomarão posse no primeiro dia útil do biênio seguinte. [(Inluído pela Emenda à Lei Orgânica nº 36, de 06.04.2010)](/legislatura-2009-2012/2010/lei-organica/ELO-00036-2010.md)~~
+
+~~**§ 6º** A eleição da Mesa, para o segundo biênio de cada legislatura, far-se-á na última sessão do segundo período do segundo ano legislativo, tomando posse os eleitos no primeiro dia útil do biênio seguinte. [(Redação dada pela Emenda à Lei Orgânica nº 41, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00041-2014.md)~~
+
+**§ 6º** A eleição da Mesa Diretora da Câmara Municipal da Câmara Municipal de Maricá, para o segundo biênio de cada legislatura far-se-á na primeira sessão do último mês do primeiro período do segundo ano legislativo, tomando posse em 1º de janeiro do ano seguinte ao da eleição. [(Redação dada pela Emenda à Lei Orgânica nº 45, de 2018)](/legislatura-2017-2020/2018/lei-organica/ELO-00045-2018.md)
 
 ~~**Art. 93.**~~
 
 ~~**Art. 93.** O mandato da Mesa será de dois anos, facultada a recondução por mais um período, para o mesmo cargo, na eleição imediatamente subsequente. [(Redação dada pela Emenda à Lei Orgânica nº 14, de 1998)](/legislatura-1997-2000/1998/lei-organica/ELO-00014-1998.md)~~
 
-~~**Art. 93.** O Mandato da Mesa Diretora da Câmara Municipal de Maricá será de 02 (dois) anos, permitidas reconduções para os mesmos cargos nas eleições subseqüentes. [(Redação dada pela Emenda à Lei Orgânica nº 34, de 2008)](/legislatura-2001-2004/2004/lei-organica/ELO-00027-2004.md)~~
+~~**Art. 93.** O Mandato da Mesa Diretora da Câmara Municipal de Maricá será de 02 (dois) anos, permitidas reconduções para os mesmos cargos nas eleições subseqüentes. [(Redação dada pela Emenda à Lei Orgânica nº 27, de 2004)](/legislatura-2001-2004/2004/lei-organica/ELO-00027-2004.md)~~
 
-~~**Art. 93.** O mandato da Mesa Diretora da Câmara Municipal de Maricá será, obrigatoriamente, de 01 (um) ano, com direito apenas a uma recondução. [(Redação dada pela Emenda à Lei Orgânica nº 32, de 2007)](/legislatura-2005-2008/2007/lei-organica/ELO-00032-2007.md)~~
+~~**Art. 93.** O mandato da Mesa Diretora da Câmara Municipal de Maricá será, obrigatoriamente, de 01 (um) ano, com direito apenas a uma recondução. [(Redação dada pela Emenda à Lei Orgânica nº 30, de 2006)](/legislatura-2005-2008/2006/lei-organica/ELO-00030-2006.md)~~
 
-**Art. 93.** O Mandato da Mesa Diretora da Câmara Municipal de Maricá será de 02 (dois) anos, permitidas as reconduções para os mesmos cargos nas eleições subseqüentes. [(Redação dada pela Emenda à Lei Orgânica nº 34, de 2008)](/legislatura-2005-2008/2008/lei-organica/ELO-00034-2008.md)
+~~**Art. 93.** O Mandato da Mesa Diretora da Câmara Municipal de Maricá será de 02 (dois) anos, permitidas as reconduções para os mesmos cargos nas eleições subseqüentes. [(Redação dada pela Emenda à Lei Orgânica nº 34, de 2008)](/legislatura-2005-2008/2008/lei-organica/ELO-00034-2008.md)~~
+
+**Art. 93.** O mandato da Mesa Diretora da Câmara Municipal de Maricá será de 02 (dois) anos, permitida apenas uma recondução para o mesmo cargo. [(Redadação dada pela Emenda à Lei Orgânica nº 48, de 2022)](/legislatura-2021-2024/2022/lei-organica/ELO-00048-2022.md)
 
 ~~**Parágrafo Único.**~~
 
@@ -1101,7 +1127,9 @@ XIII - declarar extinto o mandato do Prefeito, do Vice-Prefeito e dos Vereadores
 
 XIV - requisitar o numerário destinado às despesas da Câmara, bem como prestar contas dos prazos estabelecidos em lei.
 
-**Art. 98.** O Presidente da Câmara ou sem substituto, quando em exercício, não poderá apresentar nem discutir projetos, indicações, requerimentos, emendas ou propostas de qualquer espécie e só poderá votar:
+~~**Art. 98.** O Presidente da Câmara ou sem substituto, quando em exercício, não poderá apresentar nem discutir projetos, indicações, requerimentos, emendas ou propostas de qualquer espécie e só poderá votar:~~
+
+**Art. 98.** O Presidente da Câmara ou seu substituto, quando em exercício, poderão apresentar e discutir Projetos, Indicações, Requerimentos, Emendas ou propostas de qualquer espécie. [(Redação dada pela Emenda à Lei Orgânica nº 44, de 2017)](/legislatura-2017-2020/2017/lei-organica/ELO-00044-2017.md)
 
 I - nas eleições da Mesa da Câmara;
 
@@ -2166,20 +2194,23 @@ IX - o total pago até o mês.
 
 **Art. 229.** O Município, observados os preceitos estabelecidos na Constituição Federal, atuará no sentido da realização do desenvolvimento econômico e da justiça social, prestigiando o primado do trabalho e as atividades produtivas e distributivas das riquezas com a finalidade de assegurar a elevação do nível e qualidade de vida e o bem estar do população.
 
-**Art. 229-A.** O Município manterá um Fundo especial de natureza contábil e financeira com o objetivo de fomentar projetos de interesse estratégico Municipal que visem fortalecer e impulsionar o desenvolvimento regional, ampliar e estimular a criação de novas fontes de receita, estimular e fortalecer o sistema e a autonomia financeira municipal, formar poupança pública que garanta a sustentabilidade fiscal e mitigue a volatilidade dos fluxos de arrecadação provenientes de indenizações pela exploração do petróleo e gás natural. [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
+**Art. 229-A.** O Município manterá um Fundo especial de natureza contábil e financeira com o objetivo de fomentar projetos de interesse estratégico Municipal que visem fortalecer e impulsionar o desenvolvimento regional, ampliar e estimular a criação de novas fontes de receita, estimular e fortalecer o sistema e a autonomia financeira municipal, formar poupança pública que garanta a sustentabilidade fiscal e mitigue a volatilidade dos fluxos de arrecadação provenientes de indenizações pela exploração do petróleo e gás natural. [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
 
-**§ 1º** Constituirá receita do Fundo Especial os recursos decorrentes de participação sob o resultado da exploração de petróleo ou gás natural, de recursos hídricos para fins de geração de energia elétrica e de outros recursos minerais no respectivo território, plataforma continental, mar territorial ou zona econômica exclusiva, ou compensação financeira por essa exploração, conforme § 1º do art. 20 da Constituição Federal, além de outras fontes. [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
+**§ 1º** Constituirá receita do Fundo Especial os recursos decorrentes de participação sob o resultado da exploração de petróleo ou gás natural, de recursos hídricos para fins de geração de energia elétrica e de outros recursos minerais no respectivo território, plataforma continental, mar territorial ou zona econômica exclusiva, ou compensação financeira por essa exploração, conforme § 1º do art. 20 da Constituição Federal, além de outras fontes. [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
 
-**§ 2º** Será admitida a utilização do Fundo quando a receita de royalties ou de participação especial seja inferior ao estimado para ano fiscal corrente ou de acordo com as diretrizes especificadas no Caput deste artigo. [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
+**§ 2º** Será admitida a utilização do Fundo quando a receita de royalties ou de participação especial seja inferior ao estimado para ano fiscal corrente ou de acordo com as diretrizes especificadas no Caput deste artigo. [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
 
-**Art. 229-B.** Os recursos do Fundo Especial se destinarão exclusivamente à: [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
+**Art. 229-B.** Os recursos do Fundo Especial se destinarão exclusivamente à: [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
 
-I - estimular planos, programas, projetos e ações, governamentais ou não governamentais, por meio de microcréditos, que fomentem o desenvolvimento local com a geração de emprego e renda; [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
-II - garantir a execução de projetos e atividades que estimulem o desenvolvimento regional; [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
-III -desenvolver e estimular instrumentos de gestão, planejamento, administração e controle das ações constantes na Política Municipal; [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
-IV - assegurar a solvência do Município perante contratos de concessão administrativa ou patrocinada, nos termos da Lei no 2.398, de 30 de dezembro de 2011. [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
+I - estimular planos, programas, projetos e ações, governamentais ou não governamentais, por meio de microcréditos, que fomentem o desenvolvimento local com a geração de emprego e renda; [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
 
-**Parágrafo Único.** O Fundo especial será regulamentado na forma da lei ordinária e será acompanhado e fiscalizado de um Conselho Diretor e Deliberativo. [(Incluído pela Emenda Nº 046, de 07.10.2020)](emenda-046-2020.md)
+II - garantir a execução de projetos e atividades que estimulem o desenvolvimento regional; [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
+
+III -desenvolver e estimular instrumentos de gestão, planejamento, administração e controle das ações constantes na Política Municipal; [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
+
+IV - assegurar a solvência do Município perante contratos de concessão administrativa ou patrocinada, nos termos da Lei no 2.398, de 30 de dezembro de 2011. [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
+
+**Parágrafo Único.** O Fundo especial será regulamentado na forma da lei ordinária e será acompanhado e fiscalizado de um Conselho Diretor e Deliberativo. [(Incluído pela Emenda à Lei Orgânica nº 46, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00046-2020.md)
 
 **Art. 230.** O Município exercerá, na forma da lei as funções de fiscalização incentivo e planejamento, sendo este determinante para o setor público e indicativo para o setor privado, cuja iniciativa é livre desde que não contrarie o interesse público.
 
@@ -2430,32 +2461,67 @@ b) o transporte de pessoas em passeios ou excursões turísticas, dentro do terr
 
 **§ 2º** Não estão sujeitos ao previsto nesta lei os veículos particulares assim como os de hotéis, motéis, colégios e de outros usos especiais, não compreendidos no parágrafo anterior.
 
-**Art. 274.** A exploração dos serviços de transporte coletivo far-se-á por concessão a empresas particulares, devidamente registradas no órgãos competentes do Município.
+~~**Art. 274.** A exploração dos serviços de transporte coletivo far-se-á por concessão a empresas particulares, devidamente registradas no órgãos competentes do Município.~~
 
 ~~**§ 1º** O prazo de validade da concessão é de 5 (cinco) anos, sucessivamente renovável por igual período de tempo.~~
 
-**§ 1º** O prazo de validade de concessão, bem como suas renovações, serão fixados através de Lei. [(Redação dada pela Emenda à Lei Orgânica nº 23, de 2000)](/legislatura-1997-2000/2000/lei-organica/ELO-00023-2000.md)
+~~**§ 1º** O prazo de validade de concessão, bem como suas renovações, serão fixados através de Lei. [(Redação dada pela Emenda à Lei Orgânica nº 23, de 2000)](/legislatura-1997-2000/2000/lei-organica/ELO-00023-2000.md)~~
 
-**§ 2º** As concessões de que trata este artigo terão que ter aprovação da maioria absoluta dos Vereadores.
+~~**§ 2º** As concessões de que trata este artigo terão que ter aprovação da maioria absoluta dos Vereadores.~~
 
-**Art. 275.** A concessão a que se refere o artigo anterior far-se-á através de concorrência pública, com base nos seguintes critérios, entre outros:
+**Art. 274.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
 
-I - experiência, devidamente comprovada e julgada suficiente, em serviços de transporte coletivo;
-II - qualidade, capacidade e quantidade de veículos, conforme as linhas ou grupo de linhas a que se destinem;
-III - aparelhamento técnico das oficinas, capacidade das instalações e pessoal especializado;
-IV - prazo para complementação da frota se for o caso.
+**§ 1º** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
 
-**Art. 276.** A concessão ou permissão a que se refere esta Seção é intransferível.
+**§ 2º** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
 
-**Parágrafo Único.** Os atos de encampação ou de interdição nas concessionárias de serviços de transportes coletivos de âmbito municipal, dependerão do voto de 2/3 (dois terços) dos Vereadores.
+~~**Art. 275.** A concessão a que se refere o artigo anterior far-se-á através de concorrência pública, com base nos seguintes critérios, entre outros:~~
 
-**Art. 277.** É vedado às empresas concessionárias de serviços de transporte coletivo, sob pena de rescisão do contrato de concessão:
+~~I - experiência, devidamente comprovada e julgada suficiente, em serviços de transporte coletivo;~~
 
-I - interromper o serviço de qualquer de suas linhas, sem autorização do Poder Público por período de tempo superior a duas horas;
-II - aumentar ou diminuir a sua frota sem prévia autorização do Poder Público;
-III - desviar veículos de sua frota para realizar transportes não constantes do contrato de concessão.
+~~II - qualidade, capacidade e quantidade de veículos, conforme as linhas ou grupo de linhas a que se destinem;~~
 
-**Art. 278.** As empresas concessionárias colocarão à disposição do Poder Público, veículos em número proporcional à sua frota, para atender a situações de emergência ou calamidade pública, em qualquer área do Município.
+~~III - aparelhamento técnico das oficinas, capacidade das instalações e pessoal especializado;~~
+
+~~IV - prazo para complementação da frota se for o caso.~~
+
+**Art. 275.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+I - Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+II - Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+III - Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+IV - Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+~~**Art. 276.** A concessão ou permissão a que se refere esta Seção é intransferível.~~
+
+~~**Parágrafo Único.** Os atos de encampação ou de interdição nas concessionárias de serviços de transportes coletivos de âmbito municipal, dependerão do voto de 2/3 (dois terços) dos Vereadores.~~
+
+**Art. 276.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+**Parágrafo Único.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+~~**Art. 277.** É vedado às empresas concessionárias de serviços de transporte coletivo, sob pena de rescisão do contrato de concessão:~~
+
+~~I - interromper o serviço de qualquer de suas linhas, sem autorização do Poder Público por período de tempo superior a duas horas;~~
+
+~~II - aumentar ou diminuir a sua frota sem prévia autorização do Poder Público;~~
+
+~~III - desviar veículos de sua frota para realizar transportes não constantes do contrato de concessão.~~
+
+**Art. 277.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+I - Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+II - Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+III - Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
+
+~~**Art. 278.** As empresas concessionárias colocarão à disposição do Poder Público, veículos em número proporcional à sua frota, para atender a situações de emergência ou calamidade pública, em qualquer área do Município.~~
+
+**Art. 278.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 43, de 2016)](/legislatura-2013-2016/2016/lei-organica/ELO-00043-2016.md)
 
 **Art. 279.** Só poderão ser utilizados para transporte coletivo veículos especialmente construídos para esse fim.
 
@@ -2463,9 +2529,13 @@ III - desviar veículos de sua frota para realizar transportes não constantes d
 
 **§ 2º** Os veículos obedecerão às exigências previstas na legislação federal específica e às contidas em lei complementar do Município.
 
-**Art. 280.** Não poderão ser utilizados nos serviços de transporte coletivo veículos com mais de 10 (dez) anos de uso.
+~~**Art. 280.** Não poderão ser utilizados nos serviços de transporte coletivo veículos com mais de 10 (dez) anos de uso.~~
 
-**Parágrafo Único.** O Poder Público poderá autorizar a utilização dos veículos a que se refere este artigo, desde que tenham sido mantidos em condições adequadas de segurança e conforto
+~~**Parágrafo Único.** O Poder Público poderá autorizar a utilização dos veículos a que se refere este artigo, desde que tenham sido mantidos em condições adequadas de segurança e conforto.~~
+
+**Art. 280.** Não poderão ser utilizados nos serviços de transporte coletivo veículos com mais de 10 (dez) anos em uso. [(Redação dada pela Emenda à Lei Orgânica nº 49, de 2022)](/legislatura-2021-2024/2022/lei-organica/ELO-00049-2022.md)
+
+**Parágrafo Único.** O disposto do caput deste artigo poderá ser devidamente ajustável, de acordo com a atualização do veículo, mediante condições pré-estabelecidas pelo Poder Executivo, através do Órgão Executivo de Transportes, sendo indispensáveis os critérios de segurança veicular. [(Redação dada pela Emenda à Lei Orgânica nº 49, de 2022)](/legislatura-2021-2024/2022/lei-organica/ELO-00049-2022.md)
 
 **Art. 281.** A adaptação desta lei, a fim de garantir acesso aos idosos e portadores de deficiências, será regulada por lei.
 
@@ -2543,28 +2613,59 @@ II - despejar o lixo em lagoas, rios, cursos d`água, no mar, bem como nos locai
 
 #### Seção V - Da Guarda Municipal
 
-**Art. 299.** A Guarda Municipal é força auxiliar destinada a prestar serviços permanentes de segurança e prevenção urbana e rural destinados à proteção pública e segurança dos municípios na área de polícia administrativa de sua estrita competência.
+~~**Art. 299.** A Guarda Municipal é força auxiliar destinada a prestar serviços permanentes de segurança e prevenção urbana e rural destinados à proteção pública e segurança dos municípios na área de polícia administrativa de sua estrita competência.~~
+
+**Art. 299.** A Guarda Municipal é órgão integrante operacional do Sistema Único de Segurança Pública, instituição de caráter civil, uniformizada, podendo ser armada, competente para o exercício de policiamento ostensivo urbano e comunitário no âmbito do Município de Maricá, ressalvadas as competências da União, dos Estados e do Distrito Federal. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
 
 **Parágrafo Único.** A Guarda Municipal será subordinada ao Prefeito .
 
-**Art. 300.** O comandante da Guarda Municipal será nomeada pelo Prefeito, após o referendo da maioria absoluta da Câmara Municipal será nomeado pelo Prefeito, após o referendo da maioria absoluta da Câmara Municipal, dentre cidadãos residentes no Município, de reputação.
+~~**Art. 300.** O comandante da Guarda Municipal será nomeada pelo Prefeito, após o referendo da maioria absoluta da Câmara Municipal será nomeado pelo Prefeito, após o referendo da maioria absoluta da Câmara Municipal, dentre cidadãos residentes no Município, de reputação.~~
 
-**Parágrafo Único.** O Comandante é sujeito a voto de desconfiança da Câmara Municipal, por decisão de 2/3 (dois terços) de seus membros .
+~~**Parágrafo Único.** O Comandante é sujeito a voto de desconfiança da Câmara Municipal, por decisão de 2/3 (dois terços) de seus membros.~~
 
-**Art. 301.** A investidura nos quadros da Guarda Municipal far-se-á por recurso público de provas e títulos, e os aprovados serão submetidos a cursos de formação profissional.
+**Art. 300.** O comandante da Guarda Municipal será nomeado pelo Secretário Municipal na qual a GMM esteja vinculada, dentre agentes públicos estáveis integrantes da corporação e dotados de reputação ilibada. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
 
-**Art. 302.** Serão, entre outras, as atribuições da Guarda Municipal:
+**Parágrafo Único.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
 
-I - proteger os bens públicos, serviços e instalações do Município;
-II - fazer o salvamento nas praias do Município;
-III - proteger o patrimônio histórico, cultural e paisagístico, bem como defender e proteger as áreas de proteção ambiental e o meio ambiente, no que couber;
-IV - prevenção e primeiros combates a incêndios e calamidades públicas;
-V - prevenção e combate aos animais nocivos, bem como a apreensão de animais nas vias públicas;
-VI - prevenção e proteção ao patrimônio particular, na forma da lei.
+~~**Art. 301.** A investidura nos quadros da Guarda Municipal far-se-á por recurso público de provas e títulos, e os aprovados serão submetidos a cursos de formação profissional.~~
 
-**Parágrafo Único.** A atribuição a que se refere o inciso IV deste artigo ficará sujeita aos padrões, normas e fiscalização do Corpo de Bombeiros do Estado do Rio de Janeiro, condicionando-se a Guarda Municipal à celebração de convênios entre o Município e a mencionada corporação para garantia de padronização de estrutura, instrução e equipamentos operacionais.
+**Art. 301.** A investidura nos quadros da Guarda Municipal far-se-á por concurso público de provas ou de provas e títulos, podendo ser realizado em duas etapas, conforme dispuserem a lei e o regulamento do respectivo plano de carreira, e, os aprovados, serão submetidos a curso de formação profissional. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
 
-**Art. 303.** Lei Complementar estabelecerá a organização e competência da Guarda Municipal e disporá sobre a formação profissional de seu grupamento, acesso, deveres, vantagens e regime de trabalho, com base na hierarquia e disciplina.
+~~**Art. 302.** Serão, entre outras, as atribuições da Guarda Municipal:~~
+
+~~I - proteger os bens públicos, serviços e instalações do Município;~~
+
+~~II - fazer o salvamento nas praias do Município;~~
+
+~~III - proteger o patrimônio histórico, cultural e paisagístico, bem como defender e proteger as áreas de proteção ambiental e o meio ambiente, no que couber;~~
+
+~~IV - prevenção e primeiros combates a incêndios e calamidades públicas;~~
+
+~~V - prevenção e combate aos animais nocivos, bem como a apreensão de animais nas vias públicas;~~
+
+~~VI - prevenção e proteção ao patrimônio particular, na forma da lei.~~
+
+~~**Parágrafo Único.** A atribuição a que se refere o inciso IV deste artigo ficará sujeita aos padrões, normas e fiscalização do Corpo de Bombeiros do Estado do Rio de Janeiro, condicionando-se a Guarda Municipal à celebração de convênios entre o Município e a mencionada corporação para garantia de padronização de estrutura, instrução e equipamentos operacionais.~~
+
+**Art. 302.** Compete à Guarda Municipal de Maricá as ações de segurança urbana, inclusive no que se refere ao policiamento ostensivo comunitário, bem como outras atribuições previstas em lei, respeitadas as atribuições dos demais órgãos de segurança pública, excluída qualquer atividade de polícia judiciária. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+I – Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+II – Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+III – Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+IV – Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+V – Revogado; [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+VI – Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+**Parágrafo Único.** Revogado. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
+
+~~**Art. 303.** Lei Complementar estabelecerá a organização e competência da Guarda Municipal e disporá sobre a formação profissional de seu grupamento, acesso, deveres, vantagens e regime de trabalho, com base na hierarquia e disciplina.~~
+
+**Art. 303.** Lei Complementar estabelecerá a organização e competência da Guarda Municipal e disporá sobre a formação profissional de seu efetivo, bem como requisitos de admissão, deveres, direitos, vantagens e regime de trabalho. [(Redação dada pela Emenda à Lei Orgânica nº 52, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00052-2025.md)
 
 #### Seção VI - Da Iluminação Pública
 
@@ -2738,39 +2839,68 @@ III - integração da pesquisa pesqueira com as reais necessidades do setor prod
 **§ 1º** Para assegurar a efetividade desse direito, incumbe ao Poder Público:
 
 I - fiscalizar e zelar pela utilização racional e sustentada dos recursos naturais;
+
 II - proteger e restaurar a diversidade e a integridade do patrimônio genético, biológico e paisagístico, histórico e arquitetônico;
+
 III - implantar sistema de unidades de conservação representativo dos ecossistemas originais do espaço territorial do Município, vedada qualquer utilização ou atividade que comprometa seus atributos essenciais;
+
 IV - proteger e preservar a flora e a fauna, as espécies ameaçadas de extinção, as vulneráveis e raras, vedadas as práticas que submetam os animais a crueldades por ação direta do homem sobre os mesmos.
+
 V - estimular e promover reflorestamento ecológico em áreas degradadas, objetivando especialmente a proteção de encostas e dos recursos hídricos, a consecução de índices mínimos de cobertura vegetal, o reflorestamento econômico em áreas ecologicamente adequadas, visando suprir a demanda de matéria-prima de origem florestal e preservação das florestas nativas;
+
 VI - apoiar o reflorestamento integrado, com essências diversificadas, em áreas ecologicamente adequadas, visando suprir a demanda de matéria-prima de origem vegetal;
+
 VII - promover, respeitada a competência da União, o gerenciamento integrado dos recursos hídricos, na forma da lei, com base rios seguintes princípios:
 
 a) adoção das áreas das bacias e sub-bacias hidrográficas como unidades de planejamento e execução de planos, programas e projetos;
+
 b) unidade na administração da qualidade e da quantidade das águas;
+
 c) compatibilização entre os usos múltiplos efetivos e potenciais;
+
 d) participação dos usuários no gerenciamento e obrigatoriedade de contribuição para recuperação e manutenção da qualidade em função do tipo e da intensidade do uso;
+
 e) ênfase no desenvolvimento e no emprego de métodos e critérios biológicos de avaliação da qualidade das águas;
+
 f) proibição do despejo nas águas de caldos ou vinhotos, bem como de resíduos ou dejetos capazes de torná-las impróprias, ainda que temporariamente, para o consumo e a utilização normal ou para a sobrevivência das espécies;
 
 VIII - promover os meios defensivos necessários para evitar a pesca predatória;
+
 IX - controlar e fiscalizar a produção, a estocagem, o transporte, a comercialização e a utilização de técnicas, métodos e instalações que comportem risco efetivo ou potencial para qualidade de vida e o meio ambiente, incluindo forma geneticamente alterada pela ação humana;
+
 X - condicionar, na forma da lei, a implantação de instalações ou atividades efetiva ou potencialmente causadoras de alterações significativas do meio ambiente, à prévia elaboração de estudo de impacto ambiental, a que se dará publicidade;
+
 XI - determinar a realização periódica, preferencialmente por instalações científicas e sem fins lucrativos, de auditorias nos sistemas de controle de poluição e prevenção de riscos de acidentes das instalações e atividades de significativo potencial poluidor, incluindo a avaliação detalhada dos efeitos de sua operação sobre a qualidade física, química e biológica dos recursos ambientais;
+
 XII - estabelecer, controlar e fiscalizar padrões de qualidade ambiental, considerando os efeitos sinérgicos e cumulativos da exposição a fontes de poluição, incluída a absorção de substâncias químicas através de dieta alimentar, com especial atenção para aquelas efetiva ou potencialmente cancerígenas, mutagenicas e teratogênicas;
+
 XIII - garantir o acesso dos interessados às informações sobre as fontes e causas da degradação ambiental;
+
 XIV - informar sistematicamente à população sobre os níveis de poluição, a qualidade do meio ambiente, as situações de risco de acidentes e a presença de substâncias potencialmente danosas à saúde na água potável e nos alimentos;
+
 XV - promover medidas judiciais e administrativas de responsabilidade dos causadores de poluição ou de degradação ambiental, e dos que praticarem pesca predatória;
+
 XVI - buscar a integração dos centros de pesquisa, associações civis, organizações sindicais para garantir e aprimorar o controle da poluição;
+
 XVII - estabelecer política tributária visando à efetivação do princípio poluidor pegador e o estímulo ao desenvolvimento e implantação de tecnologias de controle e recuperação ambiental mais aperfeiçoadas, vedada a concessão de financiamentos governamentais e incentivos fiscais às atividades que desrespeitem padrões e normas de proteção ao meio ambiente;
+
 XVIII - acompanhar e fiscalizar as concessões de direitos de pesquisa e exploração de recursos hídricos e minerais efetuadas pela União no território do Município;
+
 XIX - promover a conscientização da população e a adequação do ensino de forma a incorporar os princípios e objetivos de proteção ambiental;
+
 XX - implementar política setorial visando a coleta seletiva, transporte, tratamento e disposição final de resíduos urbanos, hospitalares e industriais, com ênfase nos processos que envolvam sua reciclagem;
+
 XXI - instituir órgãos próprios para estudar, planejar e controlar a utilização racional do meio ambiente;
+
 XXII - aprimorar a atuação na preservação, apuração e combate nos crimes ambientais, inclusive através da especialização de órgãos;
+
 XXIII - fiscalizar e controlar, na forma da lei, a utilização da áreas biologicamente ricas de manguezais, estuários e outros espaços de reprodução e crescimento de espécie aquáticas, em todas as atividades humanas capazes de comprometer esses ecossistemas;
-XXIV – garantir a ampliação progressiva e universalização do acesso ao saneamento básico nos termos na Lei Federal no 11.445, de 5 de janeiro de 2007; [(Incluído pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
-XXV – promover a gestão e gerenciamento de resíduos sólidos e perigosos nos termos da Lei Federal no 12.305, de 02 de agosto de 2010;[(Incluído pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
-XXVI – fomentar programas de prestação de serviços ambientais.[(Incluído pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
+
+XXIV – garantir a ampliação progressiva e universalização do acesso ao saneamento básico nos termos na Lei Federal no 11.445, de 5 de janeiro de 2007; [(Incluído pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
+
+XXV – promover a gestão e gerenciamento de resíduos sólidos e perigosos nos termos da Lei Federal no 12.305, de 02 de agosto de 2010; [(Incluído pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
+
+XXVI – fomentar programas de prestação de serviços ambientais. [(Incluído pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
 
 **§ 2º** As condutas e atividades comprovadamente lesivas ao meio ambiente, sujeitarão os infratores a sanções administrativas com a aplicação de multas diárias e progressivas nos casos de continuidade da infração ou reincidência, incluídas a redução do nível de atividade e a interdição, além da obrigação ou restaurar os danos causados.
 
@@ -2778,8 +2908,77 @@ XXVI – fomentar programas de prestação de serviços ambientais.[(Incluído p
 
 **§ 4º** A captação em cursos d`água para fins industriais será feita a jusante do ponto de lançamento dos efluentes líquidos da própria indústria, na forma da lei.
 
+**Art. 331-A.** O Município de Maricá contará com a Política Municipal de Atenuação do Aquecimento Global, com o objetivo de reduzir a emissão de gases causadores do efeito estufa no Município, maximizar os benefícios resultantes de mudanças na matriz energética do País, sem retardar o processo de crescimento econômico. [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+**§ 1º** A Política Municipal de Atenuação do Aquecimento Global será implantada com base nos seguintes princípios: [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+I – utilização de fontes alternativas de geração de energia elétrica; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+II – promoção do aumento da eficiência no uso da energia nos processos industriais, residenciais, no transporte individual, no transporte público e no transporte de cargas; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+III – substituição de combustíveis fósseis por bio-combustíveis, tais com o etanol e o biodiesel, no transporte público e no transporte de cargas; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+IV – proteção de florestas e demais formas de vegetação e outros sumidouros naturais de carbono; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+V – integração entre ações locais, regionais e nacionais, visando otimizar a aplicação dos recursos financeiros; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+VI – cooperação entre órgãos de governo e organizações não governamentais; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+VII – uso de mecanismos de mercado para promover redução da emissão de gases causadores do efeito estufa. [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+**§ 2º** para fins do disposto neste artigo, consideram-se: [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+I - aquecimento global: aumento da temperatura média da superfície da Terra causado principalmente pela emissão de gases que provocam o efeito estufa; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+II – gases causadores do aquecimento global: dióxido de carbono, monóxido de carbono, óxido nitroso, metano, hidrofluorcarbonos, perfluorcarbonos, hexofluor sulforoso, e qualquer outro gás produzido por atividades humanas que a literatura cientifica verifique ser agente do aquecimento global; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+III – seqüestro de carbono: processo de estocagem do excesso de gases causadores do aquecimento global na biosfera, no subsolo e nos oceanos, e por prazo longo e indeterminado; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+IV - comércio de emissões: mercado internacional no qual uma empresa, que tenha diminuído as emissões de gases causadores do efeito estufa a níveis abaixo da meta de emissão, transfere o excesso das reduções para outra empresa que não tenha alcançado tal condição; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+ 
+V- créditos de carbono: certificados emitidos pelo Governo Federal a serem negociados em mercado nacional e internacional, relativos e reduções de emissões, ou relativas a seqüestro de carbono, quantificados em toneladas equivalentes de gás carbônicos; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+VI – meta de redução de emissão: meta de redução da emissão de gases causadores do aquecimento global definida com base em uma cota máxima da emissão desses gases para diferentes empresas e setores da economia; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+VII – equivalente de gás carbônico: resultado da multiplicação das toneladas emitidas dos gases do efeito estufa pelo seu potencial de aquecimento, em comparação com o potencial de aquecimento do gás carbônico. [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+**§ 3º** Cumpre ao Poder Público: [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+I - implementar metas de redução das emissões para o Município e nos diversos setores da economia e da sociedade: [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+II – fiscalizar o cumprimento das metas de redução das emissões; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+III – participar do mercado nacional para a compra e venda de créditos de carbono; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+IV – realizar estudos sobre a quantidade equivalente de gás carbônico que as áreas protegidas municipais recobertas com vegetação nativa são capazes de absorver, de modo a evitar a superavaliação ou a subavaliação dos valores pagos por meio dos créditos de carbono; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+V – promover o uso de técnicas para manejo florestal que reduzam a emissão dos gases causadores do aquecimento global ou que promovam o seqüestro de carbono; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+VI – desenvolver projetos de captura de gás em aterros sanitários, tratamentos de dejetos e reaproveitamento de biogás; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+VII – implementar programas de substituição de combustíveis fósseis por bicombustíveis para veículos utilizados no transporte individual, no transporte público e no transporte de cargas; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+VIII – desenvolver projetos de compostagem de resíduos sólidos urbanos que levem à redução das emissões; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+IX – desenvolver, em parceria com o setor privado, projetos para a geração de energia elétrica por fontes, renováveis, baseados no uso de biomassa, energia das marés e energia eólica; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+X – incentivar e promover atividades de reflorestamento que acarretem o seqüestro de carbono; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+XI – implementar programas de substituição do gás de cozinha por biogás: [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+XII – incentivar e promover a substituição do aquecimento de água para uso doméstico em que se emprega eletricidade ou gás canalizado, por sistemas baseados na utilização de energia solar; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+XIII – promover programas de educação da sociedade civil voltados para intensificar o uso mais eficiente e econômico da energia elétrica; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+XIV – desenvolver programas de redução das queimadas e do desmatamento; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+XV – realizar estudos sobre os impactos sociais e econômicos decorrentes do aquecimento global no Brasil e, em especial, em Maricá; [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
+XVI – desenvolver programas multifocais para minimizar os efeitos nocivos do aquecimento global para Maricá.” [(Redação dada pela Emenda à Lei Orgânica nº 40, de 2014)](/legislatura-2013-2016/2014/lei-organica/ELO-00040-2014.md)
+
 ~~**Art. 332.** Fica criado o Conselho Municipal do Meio Ambiente, de composição paritária, no qual participarão os Poderes Executivo e Legislativo, comunidades científicas, associações civis e especialistas na matéria, na forma da lei.~~
-**Art. 332.** Fica criado o Conselho Municipal de Meio Ambiente, órgão colegiado de assessoramento ao Poder Executivo Municipal, com caráter consultivo e deliberativo, no âmbito de sua competência, sobre as questões ambientais, com representação paritária entre membros do Poder Público e da Sociedade Civil, conforme critérios a serem estabelecidos em Lei. [(Alterado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
+
+**Art. 332.** Fica criado o Conselho Municipal de Meio Ambiente, órgão colegiado de assessoramento ao Poder Executivo Municipal, com caráter consultivo e deliberativo, no âmbito de sua competência, sobre as questões ambientais, com representação paritária entre membros do Poder Público e da Sociedade Civil, conforme critérios a serem estabelecidos em Lei. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
 
 **Parágrafo Único.** Os funcionários públicos encarregados da execução da política municipal do meio ambiente, que tiverem conhecimento de infrações intencionais ou por omissão dos padrões e normas ambientais, deverão imediatamente comunicar o fato ao Ministério Público, indicando os elementos de convicção, sob pena de responsabilidade administrativa, na forma da lei.
 
@@ -2789,25 +2988,35 @@ XXVI – fomentar programas de prestação de serviços ambientais.[(Incluído p
 
 ~~**§ 1º** Constituição recursos para o fundo de que trata o "caput" deste artigo, entre outros:~~
 
+~~I – 5% (cinco por cento) para o Meio Ambiente”; [(Redação dada pela Emenda à Lei Oregânica nº 38, de 2011)](/legislatura-2009-2012/2011/lei-organica/ELO-00038-2011.md)~~ 
+
 ~~I - 20% (vinte por cento) da compensação financeira a que se refere o art. 20, § 1º da Constituição da República;~~
+
 ~~II - o produto das multas administrativas e de condenação judiciais por atos lesivos ao meio ambiente;~~
+
 ~~III - dotações e créditos adicionais que lhe forem atribuídos;~~
+
 ~~IV - empréstimos, repasse, doações, subvenções, auxílios, contribuições legados ou quaisquer transferências de recursos;~~
+
 ~~V - rendimentos provenientes de suas operações ou aplicações financeiras.~~
 
 ~~**§ 2º** A administração do Fundo de que trata este artigo, caberá a um Conselho em que participarão necessariamente o Ministério Público e representantes da comunidade, na forma a ser estabelecida em lei.~~
 
-**Art. 334.** Fica Autorizado a criação, na forma da Lei, do Fundo Municipal de Meio Ambiente de Maricá, destinado a fiscalização, preservação, conservação e recuperação do meio ambiente, de forma a garantir um desenvolvimento integrado e sustentável e que proporcione a elevação da qualidade de vida da população local. [(Alterado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
+**Art. 334.** Fica Autorizado a criação, na forma da Lei, do Fundo Municipal de Meio Ambiente de Maricá, destinado a fiscalização, preservação, conservação e recuperação do meio ambiente, de forma a garantir um desenvolvimento integrado e sustentável e que proporcione a elevação da qualidade de vida da população local. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
 
-**§ 1º** Revogado. [(Revogado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
+**§ 1º** Revogado. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
 
-I – Revogado. [(Revogado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
-II – Revogado. [(Revogado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
-III – Revogado. [(Revogado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
-IV – Revogado. [(Revogado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
-V – Revogado. [(Revogado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
+I – Revogado. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
 
-**§ 2º** Revogado. [(Revogado pela Emenda nº 047, de 21.10.2020)](Emenda-047-2020.md)
+II – Revogado. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
+
+III – Revogado. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
+
+IV – Revogado. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
+
+V – Revogado. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
+
+**§ 2º** Revogado. [Redação dada pela Emenda à Lei Orgânica nº 47, de 2020)](/legislatura-2017-2020/2020/lei-organica/ELO-00047-2020.md)
 
 **Art. 335.** O Município, promoverá com a participação das comunidades o zoneamento ambiental de seu território.
 
@@ -3437,6 +3646,8 @@ II - 15 de agosto, data comemorativa de sua Padroeira.
 **Art. 443.** Na aplicação, integração e aplicação das leis, decretos e outros atos municipais, ressalvada a existência de norma municipal específica, observarse-ão os princípios vigentes quanto às da Constituição e das leis federais.
 
 **Art. 444.** São mantidos os atuais símbolos, brasão, hino e a bandeira do Município de Maricá.
+
+**Parágrafo Único.** Os símbolos tratados no caput deste Artigo, poderão ser alterados por meio de lei, mediante iniciativa do Poder Executivo ou de, no mínimo, um terço dos membros da Câmara Municipal. [(Redação dada pela Emenda à Lei Orgânica nº 51, de 2025)](/legislatura-2025-2028/2025/lei-organica/ELO-00051-2025.md)
 
 Maricá, 05 de abril de 1990.
 
