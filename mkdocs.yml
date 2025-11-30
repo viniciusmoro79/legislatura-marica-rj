@@ -1,6 +1,28 @@
 site_name: Documentação Maricá
 docs_dir: legislatura
+
 theme:
   name: material
+
 nav:
   - Início: index.md
+
+markdown_extensions:
+  - admonition
+  - footnotes
+  - toc:
+      permalink: true
+
+  - pymdownx.superfences
+  - pymdownx.details
+  - pymdownx.tabbed
+  - pymdownx.mark
+  - pymdownx.caret
+  - pymdownx.tilde
+  - pymdownx.highlight
+  - pymdownx.inlinehilite
+  - pymdownx.critic
+  - pymdownx.keys
+  - pymdownx.magiclink
+  - pymdownx.snippets
+  - pymdownx.extra
