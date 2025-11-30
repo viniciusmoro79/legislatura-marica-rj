@@ -61,4 +61,4 @@ plugins:
       separator: '[\s\-\.]+'
 
 extra_javascript:
-  - assets/js/relative-links.js
+  - assets/js/fix-absolute-links.js
