@@ -4,6 +4,8 @@ docs_dir: legislatura
 theme:
   name: material
   language: pt-BR
+  logo: assets/logo.png
+  favicon: assets/favicon.png
   features:
     - navigation.instant         # Navegação mais rápida
     - navigation.tracking        # Destaca seção atual
