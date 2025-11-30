@@ -1,5 +1,5 @@
 site_name: Consulta à Legislação de Maricá
-docs_dir: legislatura
+docs_dir: docs
 
 theme:
   name: material
