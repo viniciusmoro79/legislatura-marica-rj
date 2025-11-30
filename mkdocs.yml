@@ -59,6 +59,3 @@ plugins:
   - search:
       lang: pt
       separator: '[\s\-\.]+'
-
-extra_javascript:
-  - assets/js/fix-absolute-links.js
